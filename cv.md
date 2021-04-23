@@ -15,3 +15,5 @@ What I hope to learn:
 I have some experience in development already but it's not so relevant.
 
 Thank you so much for reading all this information 🙃
+
+You can also add me to contacts on [LinkedIn](https://www.linkedin.com/in/ngorbunova/).
